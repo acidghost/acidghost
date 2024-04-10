@@ -1,4 +1,4 @@
-[👻.fuzzing.systems](http://👻.fuzzing.systems)
+[jmt.codes](https://jmt.codes)
 
 ---
 
